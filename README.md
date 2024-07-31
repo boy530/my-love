@@ -1,8 +1,9 @@
 # Auout me ☘️
-I am a healthy, life-loving, positive person. My friends often say that I am considerate, kind, and have a good sense of humor. <br>
-I like sports and traveling, cooking, and maintaining a healthy lifestyle. I also constantly enrich myself through reading and learning. <br>
-I have a college degree in computer science. At work, I am an IT technician who is good at solving complex problems and earns a decent income.  <br>
-For me, family and friends are an important part of life, and I value my relationship with them very much.
+I am a healthy, life-loving, and positive individual. My friends often describe me as considerate, kind, and possessing a good sense of humor. <br>
+I enjoy sports, traveling, cooking, and maintaining a healthy lifestyle. I constantly seek to enrich myself through reading and learning. <br>
+I have a college degree in computer science and work as an IT technician, where I excel at solving complex problems and earn a decent income. <br>
+Family and friends are a crucial part of my life, and I deeply value my relationships with them. <br>
+In short, I'm a positive and caring individual who values personal growth, enjoys an active lifestyle, and cherishes meaningful relationships.
 
 # Hope ❤️
 I hope my future significant other has a high school degree or above, a decent job, good health, kindness, thoughtfulness, and a sense of humor. She can find joy in life and face challenges with me.  <br>
