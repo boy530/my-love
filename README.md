@@ -1,7 +1,7 @@
 # Auout me ☘️
 I am a healthy, life-loving, and positive individual. My friends often describe me as considerate, kind, and possessing a good sense of humor. <br>
 I enjoy sports, traveling, cooking, and maintaining a healthy lifestyle. I constantly seek to enrich myself through reading and learning. <br>
-I have a college degree in computer science and work as an IT technician, where I excel at solving complex problems and earn a decent income. <br>
+I have a degree in Computer Science and currently work as an IT Technologist, where I excel in solving complex IT problems and earn a good income. <br>
 Family and friends are a crucial part of my life, and I deeply value my relationships with them. <br>
 In short, I'm a positive and caring individual who values personal growth, enjoys an active lifestyle, and cherishes meaningful relationships.
 
