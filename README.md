@@ -1,4 +1,4 @@
-# Auout Me 🌴
+# Auout Me🌴
 I am a healthy, life-loving, positive person. My friends often say that I am considerate, kind, and have a good sense of humor. <br>
 I enjoy sports, traveling, cooking, and maintaining a healthy lifestyle. I constantly seek to enrich myself through reading and learning. <br>
 I have a degree in Computer Science and currently work as an IT Technologist, where I excel in solving complex IT problems and earn a good income. <br>
