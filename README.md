@@ -9,4 +9,4 @@ In short, I'm a positive and caring individual who values personal growth, enjoy
 I hope my future significant other has a high school degree or above, a decent job, good health, kindness, thoughtfulness, and a sense of humor. She can find joy in life and face challenges with me.  <br>
 I hope she and I have some common interests, such as sports, music, or travel, so that we can share these good times together. <br>
 At the same time, I hope she values ​​family and is willing to run a warm and harmonious family with me. She should have a strong sense of responsibility and be able to respect and tolerate different opinions. <br>
-In short, I hope to find a partner who can grow with me, share happiness, and face challenges together.
+In short, I hope to find a partner who can grow with me, share happiness,  and face challenges together.
